@@ -2,14 +2,11 @@
 
 
 **Gabiih3_** 
-♎-♎ 22/03❤️
+♎-♎ 💍A❤️
 
 -⭐J'veux ton amour,et je veux ta revanche⭐
 
 -☀️14/15 anos☀️
 -20/10
 
--I am deeply in love with myself🌙
-
-
-
+![](https://www.redbubble.com/i/sticker/Silly-little-cat-by-JustACrustSock/143662214.EJUG5)
